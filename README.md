@@ -137,4 +137,4 @@ Aspiring Data Engineer and Cloud Professional
 
 ## 📢 Connect with Me
 
-I am actively seeking internships and part-time opportunities in networking, cloud, and data engineering in the UK. Feel free to connect with me on LinkedIn.
+I am actively seeking internships and part-time opportunities in networking, cloud, and data engineering in the UK. Feel free to connect with me on LinkedIn.(www.linkedin.com/in/resitha-sarvana-11541a1b4)
